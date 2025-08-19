@@ -1,0 +1,1 @@
+# Vidaplena-venda_2025
